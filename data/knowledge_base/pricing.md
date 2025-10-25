@@ -16,3 +16,6 @@ Available for long-term (3+ month) retainers or returning clients.
 
 **Equity-based Work**
 Occasionally accepted for strategic early-stage startups.
+
+**Long-term projects**
+It is possible to negotiate dedicated Long-term projects which lasts more than 3 months.

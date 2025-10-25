@@ -21,4 +21,4 @@ Open to partnering with other consultants or agencies.
 English and Croatian.
 
 **Corporate AI Training / Workshops**  
-MISSING ANSWER
+Udemy course: "Master AI Agents"
